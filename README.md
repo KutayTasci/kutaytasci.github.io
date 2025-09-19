@@ -1,1 +1,0 @@
-# kutaytasci.github.io
